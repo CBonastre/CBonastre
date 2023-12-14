@@ -9,7 +9,7 @@
 - 💰 Mundo Cripto: Fascinado por las criptomonedas y su impacto en la economía digital.
 
 ## Actualmente
-Soy estudiante de ultimo año de ASIR en perfil de ciberseguridad para ampliar mis conocimientos y mantenerme al día con las últimas tendencias y avances en tecnología.
+Soy estudiante de ultimo año de ASIR en perfil de ciberseguridad con ganas de ampliar mis conocimientos y mantenerme al día con las últimas tendencias y avances en tecnología.
 
 ## Contacto
 ¡Hablemos! Encuéntrame en:
