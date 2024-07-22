@@ -10,7 +10,7 @@
 
 ## Actualmente
 Soy técnico superio en Administración de Sistemas y Redes con especialización en ciberseguridad, y técnico superior en Automatización y robótica. 
-Por el momento me encuentro realizando prácticas en NTT DATA, con ganas de ampliar mis conocimientos y mantenerme al día con las últimas tendencias y avances en tecnología.
+Por el momento me encuentro en busca de mi primer empleo en el mundo de la ciberseguridad, con ganas de ampliar mis conocimientos y mantenerme al día con las últimas tendencias y avances en tecnología.
 
 ## Contacto
 ¡Hablemos! Encuéntrame en:
